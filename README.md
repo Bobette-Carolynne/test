@@ -1,2 +1,1 @@
-# test
-?hi ts is a wip , dont wait for new updates.
+hola me rompi my pie ok graciaz por leer 🥹
